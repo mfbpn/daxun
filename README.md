@@ -1,6 +1,6 @@
 # 大讯云机场官网地址
 
-最新地址：[daxuns.top](https://daxun.me/#/register?code=yvkmKYQL)
+最新地址：[daxuns.top](https://daxun.me/#/register?code=9XI4KbXW)
 
 ## 大讯云介绍
 
